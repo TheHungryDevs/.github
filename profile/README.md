@@ -6,7 +6,7 @@
 
 > What begun as a joke of a name soon became a part of reality so because of that our goal is to grow and spread our love and passion for programming and to try and make sense of an ever growing industry for us and others.
 
->We encourage everyone to join us and help us reach our goal and why not, have tons of fun while developing some really neet ideas into reality?
+>We encourage everyone to join us and help us reach our goal and why not, have tons of fun while developing some really neat ideas into reality?
 
 
 ## 🛎️ Got your attention? 🛎️
